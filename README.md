@@ -1,3 +1,4 @@
++ ĐỚI VỚI C. MÁC " GÓP PHẦN PHÊ PHÁN " 
 +NGUỒN GÓC CỦA TÔN GIÁO KHÔNG PHẢI TỪ VĂN HÓA XÃ HỘI ( ĐÓ CHỈ LÀ MÔI TRƯỜNG ĐỂ PHÁT TRIỂN )
 +HỆ GIÁ TRỊ CỦA CÔNG NHÂN TRONG VĂN HÓA TƯ TƯỞNG LÀ: Lao động; công bằng, dân chủ, bình đẳng và tự do
 +QUYỀN PHÊ BÌNH VĂN HỌC THUỘC VĂN HÓA 
@@ -5,6 +6,7 @@
 +LSU PHAT TRIEN CUA CÁC TỘC NGƯỜI GẮN VỚI PTSX
 +CNXH LÀ GIAI ĐOẠN ĐẦU CỦA HÌNH THÁI KT -XH
 +CM TRIỆT ĐỂ NHẤT VÌ : K CÓ TLSX  CŨNG NHƯ TIÊN TIẾN NHẤT
+NHIỀU VỢ NHIỀU CHỒNG, TẬP THỂ
 
 +CÁC LOẠI NHÀ NƯỚC: NÔ LỆ, PHONG KIẾN, TƯ SNAR, XHCN ( KO CÓ NGUYÊN THỦY) 
 +PHƯƠNG DIỆN ĐỂ NHẬN DIỆN GCCN : KO CÓ TƯ TƯỞNG
