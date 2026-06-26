@@ -24,7 +24,8 @@ NHIỀU VỢ NHIỀU CHỒNG, TẬP THỂ
 + CNXH CÓ 6 ĐẶC TRƯNG
 + CÓ 2 MQH LÀM NÊN CƠ SỞ CỦA GDINH
 + 5 PHƯƠNG HƯỚNG XÂY DỰNG CƠ CẤU XH-GC VIỆT NAM
-+ +CƯƠNG LĨNH CHÍNH TRỊ 1991 LÀ 7 PHƯƠNG HƯỚNG CÒN 2011 LÀ 8 ĐẶC TRƯNG
++ +CƯƠNG LĨNH CHÍNH TRỊ 1991 LÀ 7 PHƯƠNG HƯỚNG CÒN 2011 LÀ 8 ĐẶC TRƯNG, 12 NHIỆM VỤ
 + +Dân tộc hiểu theo nghĩa Dân tộc Quốc Gia có 5 đặc trưng cơ bản
 + VILênin đã phát hiện ra 2 xu hướng phát triển quan hệ dân tộc
 + CNXHKH ĐC HIỂU THEO 2 NGHĨA, CNXH 4 Ý NGHĨA
+  
