@@ -7,6 +7,20 @@
 +CNXH LÀ GIAI ĐOẠN ĐẦU CỦA HÌNH THÁI KT -XH
 +CM TRIỆT ĐỂ NHẤT VÌ : K CÓ TLSX  CŨNG NHƯ TIÊN TIẾN NHẤT
 NHIỀU VỢ NHIỀU CHỒNG, TẬP THỂ
++ CÔNG NÔNG... CM " HCM"
++ CHÍNH PHỦ LÀ CƠ QUAN HÀNH PHÁP
++ QUỐC HỘI LÀ LẬP PHÁP LÀ ĐẠI DIỆN
++ KHÔNG NGHI NGỜ GÌ ĐƯỢC : LÊNIN
++ Tuyên ngôn của Đảng Cộng sản đánh dấu sự ra đời của CNXH khoa học VÀ khoa học dự báo về xã hội
+tương lai - xã hội cộng sản chủ nghĩa
++Hộ gia đình có thể bao gồm những người có
+hoặc không có quan hệ hôn nhân hay huyết thống
++ chính trị - xã hội LÀ SP CỦA CNTB , KINH TẾ LÀ CÔNG NGHIỆP
++ Một đơn vị cơ sở
++ Thị tộc- Bộ lạc - Bộ tộc- Dân tộc
++ Phân phối theo mức độ đóng góp và quỹ phúc lợi xã hội
++ HUYẾT TỘC LOẠI TRỪ HÔN NHÂN GIỮA CÁC THẾ HỆ
++ Nhà nước đầu tiên của giai cấp công nhân ra đời năm 1871 , CNXH 1917
 
 +CÁC LOẠI NHÀ NƯỚC: NÔ LỆ, PHONG KIẾN, TƯ SNAR, XHCN ( KO CÓ NGUYÊN THỦY) 
 +PHƯƠNG DIỆN ĐỂ NHẬN DIỆN GCCN : KO CÓ TƯ TƯỞNG
@@ -24,8 +38,9 @@ NHIỀU VỢ NHIỀU CHỒNG, TẬP THỂ
 + CNXH CÓ 6 ĐẶC TRƯNG
 + CÓ 2 MQH LÀM NÊN CƠ SỞ CỦA GDINH
 + 5 PHƯƠNG HƯỚNG XÂY DỰNG CƠ CẤU XH-GC VIỆT NAM
-+ +CƯƠNG LĨNH CHÍNH TRỊ 1991 LÀ 7 PHƯƠNG HƯỚNG CÒN 2011 LÀ 8 ĐẶC TRƯNG, 12 NHIỆM VỤ
++ +CƯƠNG LĨNH CHÍNH TRỊ 1991 LÀ( 7 PHƯƠNG HƯỚNG, 6 đặc trưng )  CÒN 2011 LÀ 8 ĐẶC TRƯNG, 12 NHIỆM VỤ
 + +Dân tộc hiểu theo nghĩa Dân tộc Quốc Gia có 5 đặc trưng cơ bản
 + VILênin đã phát hiện ra 2 xu hướng phát triển quan hệ dân tộc
 + CNXHKH ĐC HIỂU THEO 2 NGHĨA, CNXH 4 Ý NGHĨA
++ 5 CHÍNH SÁCH TÔN GIÁO..
   
