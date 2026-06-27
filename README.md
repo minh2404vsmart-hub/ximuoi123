@@ -1668,5 +1668,6 @@ hoặc không có quan hệ hôn nhân hay huyết thống
 + +Dân tộc hiểu theo nghĩa Dân tộc Quốc Gia có 5 đặc trưng cơ bản
 + VILênin đã phát hiện ra 2 xu hướng phát triển quan hệ dân tộc
 + CNXHKH ĐC HIỂU THEO 2 NGHĨA, CNXH 4 Ý NGHĨA
-+ 5 CHÍNH SÁCH TÔN GIÁO..
++ 5 CHÍNH SÁCH TÔN GIÁO, 4 giải quyết tôn giáo cnxh
++ DÂN TỘC ĐƯỢC HIỂU THEO 2 NGHĨA
   
