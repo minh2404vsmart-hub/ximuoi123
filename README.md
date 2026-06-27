@@ -658,6 +658,972 @@ Trong chủ nghĩa xã hội, văn hóa là ....... của xã hội, mục tiêu
 Trong cơ cấu xã hội, cơ cấu nào là bộ phận cơ bản và quan trọng nhất?
 *   ✅ B. Cơ cấu xã hội – giai cấp
 
+
+_____________________________________________________________
+
+CHỦ NGHĨA XÃ HỘI KHOA HỌC
+CHƯƠNG I: NHẬP MÔN CHỦ NGHĨA XÃ HỘI KHOA HỌC
+I. Sự ra đời của Chủ nghĩa xã hội khoa học
+* Nghĩa của Chủ nghĩa xã hội khoa học
+- Nghĩa rộng:
++ Chủ nghĩa Mác – Lênin
++ Khoa học luận giải từ các góc độ triết học, kinh tế học chính trị và chính trị -
+xã hội
++ Sự chuyến biến tất yếu của xã hội loài người từ CNTB lên CNXH và CNCS
+- Nghĩa hẹp:
++ Một trong ba bộ phận hợp thành chủ nghĩa Mác – Lênin
++ Chống Đuyrinh – Ăngghen – “triết học”, “kính tế chính trị”, “chủ nghĩa xã hội
+khoa học”
++ Ba nguồn gốc và ba bộ phận hợp thành chủ nghĩa Mác – Lênin – Thừa kế
+chính đáng của tất cả những cái tốt nhất mà loài người tạo ra hồi thế kỷ XIX
++ Triết học Đức, kinh tế chính trị Anh, chủ nghĩa xã hội Pháp
+1. Hoàn cảnh lịch sử ra đời chủ nghĩa xã hội khoa học
+a, Điều kiện kinh tế - xã hội
+- Những năm 40 của thế kỷ XIX:
++ CMCN hoàn thành ở Anh, chuyển sang Pháp, Đức  Nền đại công nghiệp
++ Chuyển từ phương thức sản xuất thủ công sang tư bản chủ nghĩa
+=> Mâu thuẫn quyết liệt giữa LLSX mang tính chất xã hội với QHSX dựa trên
+chế độ chiếm hữu tư nhân tư bản chủ nghĩa về TLSX
+=> Giai cấp tư sản và giai cấp vô sản (công nhân)
+- Phong trào diễn ra mạnh mẽ:
+ Hiến chương – Anh – 10 năm (1836-1848)
+ Công nhân thành phố Xi-lê-di – Đức – 1844
+ Công nhân dệt TP Li-on – Pháp – Tính chất kinh tế: 1831 (Sống có việc
+làm hay là chết trong đấu tranh) – Tính chất chính trị: 1834 (Cộng hòa
+hay là chết)
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Sự phát triển nhanh chóng có tính chính trị công khai của phong trào công
+nhân  Lần đầu tiên, giai cấp công nhân đã xuất hiện như một lực lượng chính
+trị độc lập
+- Đỏi hỏi một hệ thống lý luận soi đường và một cương lĩnh chính trị làm kim
+chỉ nam cho hành động
+=> Mảnh đất thực hiện cho sự ra đời một lý luận mới, tiến bộ => CHXHKH
+b, Tiền đề khoa học tự nhiên và tư tưởng lý luận
+* Tiền đề khoa học tự nhiên
+- Cuối thế kỷ XVIII, đầu thế kỷ XIX, thành tự to lớn KHTN&XH
+- Học thuyết tiến hóa (Darwin)
+ Đã vạch ra nguồn gốc tiến hoá của thế giới.
+ Khẳng định sự tiến hoá, sự vận động của thế giới là khách quan
+ Phủ nhận quan điểm duy tâm, tôn giáo về sự phát triển của tự nhiên, xã
+hội.
+- Định luật Bảo toàn và chuyển hóa năng lượng
+- Học thuyết tế bào (Svan và Sleyden)
+ Động vật và thực vật được cấu tạo từ tế bào.
+ Đặt ra quan niệm khoa học để giải thích nguồn gốc và bản chất của sự
+sống.
+ Tiền đề xây dựng chủ nghĩa duy vật biện chứng, đánh đổ quan niệm siêu
+hình, duy tâm, tôn giáo.
+=> Tiền đề khoa học cho sự ra đời của chủ nghĩa duy vật biện chứng và chủ
+nghĩa duy vật lịch sử
+* Tiền đề tư tưởng lý luận
+- Triết học cổ điển Đức: Ph.Hêghen (1770-1831), L.Phoiơbắc (1804-1872)
+- Kinh tế chính trị học cổ điển Anh: A.Smith (1723-1790), D.Ricardo (1772-
+1823)
+- Chủ nghĩa xã hội không tưởng Pháp:
++ Xanh Ximông (1760-1825): Lý thuyết giai cấp và xung đột giai cấp – Tính
+chất nửa vời của cách mạng tư sản – Quan niệm xã hội mới
++ S.Phuriê (1772-1837): Phê phán xã hội tư sản – Lý thuyết phân kỳ lịch sử - Xã
+hội hài hòa
+messages.downloaded_by
+lOMoARcPSD|61972403
++ R.Oen(1771-1858): Luật “công xưởng nhân đạo” – Vai trò công nghiệp, kỹ
+thuật – Xóa bỏ bất công
++ Giá trị lịch sử:
+ Chứa đựng tinh thần nhân đạo cao cả.
+ Thể hiện tinh thần phê phán, lên án chế độ quân chủ chuyên chế và chế độ
+tư bản chủ nghĩa.
+ Chuẩn bị tiền đề lý luận (luận điểm, khái niệm…) cho sự kế thừa phát
+triển tư tưởng xã hội chủ nghĩa lên một trình độ mới.
+ Thức tỉnh phong trào công nhân và người lao động
++ Hạn chế:
+ Quan niệm duy tâm về lịch sử (chân lý vĩnh cửu đã có, tồn tại ở đâu, chỉ
+cần có con người tài ba, xuất chúng.
+ Khuynh hướng đi theo con đường ôn hoà để cải tạo xã hội bằng luật và
+thực nghiệm xã hội…
+ Không thể phát hiện ra lực lượng xã hội tiên phong thực hiện cuộc chuyển
+biến từ chủ nghĩa tư bản lên chủ nghĩa xã hội và chủ nghĩa cộng sản.
+2. Vai trò của Các Mác và Phriđrích Ăngghen
+- Mác (1818-1883) và Ăngghen (1820-1895) trưởng thành ở Đức – Trí tuệ uyên
+bác và sự dấn thân trong phong trào đấu tranh của gia cấp công nhân và nhân
+dân lao động
+a, Sự chuyển biến lập trường triết học và lập trường chính trị
+- Ban đầu, thành viên tích cực của CLB Hêghen trẻ và ảnh hưởng bởi triết học
+Hêghen (“Hạt nhân hợp lý” của phép biện chứng) và Phoiơbắc (Thấm
+nhuần quan niệm duy vật)
+- Cuối 1843 đến 4/1844 – C.Mác – “Góp phần phê phán triết học pháp quyền
+của Hêghen – Lời nói đầu (1844)
+- Năm 1843 – Ph.Ăngghen – “Tình cảnh nước Anh”, “Lược khảo khoa kinh tế -
+chính trị” -
+=> Thế giới quan duy tâm  Thế giới quan duy vật – Lập trường dân chủ cách
+mạng  Lập trường cộng sản chủ nghĩa
+b, Ba phát kiến vĩ đại của C.Mác và Ph.Ăngghen
+* Chủ nghĩa duy vật lịch sử (Phát hiện vĩ đại thứ nhất)
+- Sáng lập chủ nghĩa duy vật biện chứng, thành tựu vĩ đại nhất của tư tưởng
+khoa học
+- Sáng lập chủ nghĩa duy vật lịch sử
+messages.downloaded_by
+lOMoARcPSD|61972403
+ Khẳng định triết học về sự sụp đổ của CNTB và sự thắng lợi của CNXH đều
+tất yếu như nhau
+* Học thuyết về giá trị thặng dư (Phát hiện vĩ đại thứ hai)
+- Sáng tạo ra bộ “Tư bản”, giá trị to lớn là “Học thuyết về giá trị thặng dư”
+- Khẳng định về phương diện kinh tế, sự diệt vong của CNTB và sự ra đời tất
+yếu của CNXH
+* Học thuyết về sứ mệnh lịch sử toàn thế giới của gia cấp công nhân (Phát
+kiến thứ ba)
+- Sứ mệnh lịch sử của giai cấp công nhân với sứ mệnh thủ tiêu CNTB, xây dựng
+CNXH và CNCS
+- Hạn chế của CHXN không tưởng được khắc phục triệt để
+- Khẳng định chính trị - xã hội về sự diệt vong CNTB và thắng lợi của CNXH
+c, Tuyên ngôn của Đảng Cộng sản đánh dấu sự ra đời của CNXHKH
+- 2/1848, “Tuyên ngôn của Đảng Cộng sản” được công bố trước toàn thế giới
+- Vai trò:
++ Tác phẩm kinh điển chủ yếu, đánh dấu sự hình thành về cơ bản lý luận của
+chủ nghĩa Mác bao gồm bộ phận hợp thành: Triết. KTCT, CNXHKH
++ Cương lĩnh chính trị, kim chỉ nam hành động của phong trào công nhân
++ Ngọn cờ dẫn dắt giai cấp công nhân thoát khỏi áp bức, bóc lột
+- Luận điểm nổi bật:
++ Cuộc đấu tranh của giai cấp trong lịch sử loài người = Giai cấp công nhân tự
+giải phóng mình + xã hội ra khỏi tình trạng phân chia giai cấp, áp bức, bóc lột và
+đấu tranh giai cấp.
++ Logic phát triển tất yếu: Sự sụp đổ của chủ nghĩa tư bản và sự thắng lợi của
+chủ nghĩa xã hội là tất yếu như nhau.
++ Giai cấp công nhân có sứ mệnh lịch sử thủ tiêu CNTB và xây dựng chủ nghĩa
+xã hội, chủ nghĩa cộng sản.
++ Những người cộng sản phải liên minh với các lực lượng dân chủ  Đánh đổ
+phong kiến chuyên chế, đấu tranh cho chủ nghĩa cộng sản
+II. Các giai đoạn phát triển cơ bản của CNXHKH
+1. C.Mác và Ph.Ăngghen phát triển
+a, 1848 – Công xã Pari (1871)
+messages.downloaded_by
+lOMoARcPSD|61972403
+- 1848-1852: Cách mạng dân chủ tư sản Tây Âu. Quốc tế I thành lập (1864).
+Tập I bộ Tư bản (1867).
+- Bộ Tư bản là tác phẩm chủ yếu và cơ bản trình bày CNXHKH
+- Tiếp tục phát triển thêm nhiều nội dung:
++ Tư tưởng về đập tan bộ máy nhà nước tư sản, thiết lập chuyên chính vô sản
++ Sự kết hợp giữa đấu tranh của giai cấp vô sản với phong trào đấu tranh của
+giai cấp nông dân
+ Điều kiện tiên quyết bảo đảm cho cuộc cách mạng phát triển không ngừng để
+đi tới mục tiêu cuối cùng.
+b, Sau Công xã Pari – 1895
+- Phát triển toàn diện chủ nghĩa xã hội khoa học:
++ Tư tưởng đập tan bộ máy nhà nước quan liêu
++ Công xã Pari là một hình thái nhà nước của giai cấp công nhân
+- Nhiệm vụ nghiên cứu của CNXHKH:
++ Nghiên cứu những điều kiện lịch sử
++ Nghiên cứu bản chất của sự biến đổi
++ Làm cho giai cấp đang bị áp bức và có sứ mệnh hiểu rõ được những điều kiện
+và bản chất sự nghiệp của chính họ
+ Sự thể hiện về lý luận của phong trao vô sản
+- “Học thuyết của Mác là học thuyết vạn năng vì nó là một học thuyết chính
+xác” – Lênin
+2. Lênin vận dụng và phát triển trong điều kiện mới
+- Mác và Ăngghen phát triển CNXH từ không tưởng thành khoa học, Lênin biến
+CNXH từ lý luận thành hiện thực
+- Dấu mốc: Sự ra đời của Nhà nước Xô viết 1917 – Nhà nước XHCN đầu tiên
+a, Trước Cách mạng Tháng Mười Nga
+- Lênin bảo vệ, vận dụng và phát triển sáng tạo:
++ Đấu tranh chống các trào lưu phi Mác-xít
++ Kế thừa lý luận về chính đảng, xây dựng lý luận về đảng cách mạng kiểu mới
+của giai cấp công nhân
++ Kế thừa, phát triển tư tưởng cách mạng
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Phát triển quan điểm về khả năng thắng lợi của cách mạng XHCN
++ Luận giải và xác định bản chất dân chủ về chuyên chính vô sản
++ Gắn hoạt động lý luận với thực tiến cách mạng
+b, Sau Cách mạng Tháng Mười Nga – 1924
+- Luận điểm tiêu biểu về những nguyên lý của CNXHKH trong thời kỳ mới:
++ Chuyên chính vô sản: Hình thức nhà nước dân chủ với những người vô sản và
+chuyên chính với tưu sản. Cơ sở và nguyên tắc cao nhất: Sự liên minh của công
+nhân và nông dân và toàn thể nhân dân lao động, các tầng lớp lao động kahsc
++ Thời kỳ quá độ chính trị từ CNTB lên CNCS
++ Chế độ dân chủ
++ Cải cách hành chính bộ máy nhà nước
++ Cương lĩnh xây dựng chủ nghĩa xã hội
+- Vấn đề dân tộc và 3 nguyên tắc trong Cương lĩnh dân tộc:
++ Quyền bình đẳng dân tộc
++ Quyền dân tộc tự quyết
++ Tình đoàn kết của giai cấp vô sản
+3. Sự vận dụng và phát triển từ sau khi Lênin qua đời đến nay
+a, 1924 – trước 1991
+- Đời sống chính trị thế giới chứng kiến nhiều thay đổi
+- Chiến tranh thế giới lần thứ 2 (1939-1945) để lại hậu quả khủng khiếp
+- Liên Xô trong phe đồng minh chống phát xít
+- J.Xtalin kế tục là người lãnh đạo cao nhất của Đảng Cộng sản Nga, sau đó
+là Đảng Cộng sản Liên Xô - ảnh hưởng lớn nhất đến Quốc tế III (Quốc tế Cộng
+sản) cho đến năm 1943
+- 1924-1953: “Thời đoạn Xtalin” – Xtalin + Đảng Cộng sản Liên Xô gắn ký
+luận và tên tuổi “Chủ nghĩa Mác – Lênin”
+- Nội dung phản ảnh sự vận dụng, phát triển, sáng tạp CNXHKH:
++ Hội nghị đại biểu các Đảng Cộng sản và công nhân quốc tế họp tại Matxcơva
+tháng 11 -1957 đã tổng kết và thông qua 9 quy luật chung của công cuộc cải
+tạo xã hội chủ nghĩa và xây dựng chủ nghĩa xã hội.
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Hội nghị đại biều 81 Đảng Cộng sản và công nhân quốc tế Matxcơva vào
+tháng giêng năm 1960 đã phân tích tình hình quốc tế và những vấn đề cơ bản
+của thế giới, đưa ra khái niệm “thời đại hiện nay”
+b, 1991 – nay
+- Đến những năm cuối của thập niên 80 đầu thập niên 90 của thế kỷ XX, mô
+hình của chế độ xã hội chủ nghĩa của Liên xô vả Đông Âu sụp đổ, hệ thống
+XHCN tan rã, CNXH đứng trước một thử thách đồi hỏi phải vượt qua
+- Đảng Cộng sản Trung Quốc:
++ Thành lập 1/7/1921
++ 3 thời kỳ lớn: Cách mạng, xây dựng cải cách, mở cửa
++ Đại học lần thứ XVI năm 2002 khái quát về quá trình lãnh đạo của Đảng
++ Cải cách mở cửa: Hội nghị trung ướng 3 khóa XI cuối năm 1987
++ Phương châm: Cầm quyền khoa học – Cầm quyền dân chủ - Cảm quyền theo
+pháp luật – Tất cả vì nhân dân – Tất cả dựa vào nhân dân
+- Việt Nam:
++ Công cuộc đổi mới do Đảng khởi xướng và lãnh đạo từ Đại học lần thứ VI
+(1986)
++ Nhìn thẳng vào sự thật, đánh giá đúng sự thật, nõi rõ sự thật
++ Độc lập dân tộc gắn liền với chủ nghĩa xã hội là quy luật của cách mạng Víệt
+Nam
++ Kết hợp chặt chẽ ngay từ đầu đổí mới kinh tế với đổi mới chính trị, lấy đổi
+mới kinh tế làm trung tâm, đồng thời đổi mới từng bước về chính trị, giữ ổn định
+chính trị
++ Xây dựng và phát triển nền kinh tế thị trường định hướng xã hội chủ nghĩa,
+tăng cường vai trò kiến tạo, quản lý của Nhà nước
++ Phát huy dân chủ, xây dựng Nhà nước pháp quyền Việt Nam xã hội chủ nghĩa
++ Mở rộng và phát huy khối đại đoàn kết toàn dân tộc
++ Mở rộng quan hệ đối ngoại, thực hiện hội nhập quốc tế
++ Giữ vững và tăng cường vai trò lãnh đạo của Đảng Cộng sản Việt Nam –
+nhân tố quan trọng hàng đầu bảo đảm thắng lợi của sự nghiệp đổi mới, hộ
+nhập và phát triển đất nước
+- Đảng Cộng sản Việt Nam rút ra bài học:
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Phải chủ động, không ngừng sáng tạo trên cơ sở kiên định mục tiêu độc lập
+dân tộc và CNXH
++ Đổi mới phải luôn luôn quán triệt quan điểm “dân là gốc”
++ Đổi mới phải toàn diện, đồng bộ, có bước đi phù hợp; tôn trọng quy luật khách
+quan, thực tiễn
++ Phải đặt lợi ích quốc gia – dân tộc lên trên hết
++ Thường xuyên tự đổi mới, tự chỉnh đốn, nâng cao năng lực lãnh đạo và sức
+chiến đấu của Đảng
+III. Đối tượng, phương pháp và ý nghĩa của việc nghiên cứu
+1. Đối tượng nghiên cứu
+- Chủ nghĩa xã hội khoa học trực tiếp nghiên cứu, luận chứng sứ mệnh lịch sử
+của giai cấp công nhân, những điều kiện, những con đường để giai cấp công
+nhân hoàn thành sứ mệnh lịch sử của mình.
++ Sự tiếp tục một cách logic triết học và kinh tế chính trị
++ Chức năng giác ngộ và hướng dẫn giai cấp công nhân thực hiện sứ mệnh lịch
+sử của mình
++ Luận giải khoa học về phương hướng, nguyên tác chiến lược, con đường, hình
+thức đâu tranh của giai cấp công nhân
++ Phê phán đấu tranh bác bỏ trào lưu tư tưởng chống cộng, chống CHXN
+- Những quy luật, tính quy luật chính trị - xã hội của quá trình phát sinh,
+hình thành và phát triển của hình thái kinh tế - xã hội cộng sản chủ nghĩa
+mà giai đoạn thấp là chủ nghĩa xã hội
+- Những nguyên tắc cơ bản, những điều kiện, những con đường và hình
+thức, phương pháp đấu tranh cách mạng của giai cấp công nhân và nhân
+dân lao động nhằm hiện thực hóa sự chuyển biến từ chủ nghĩa tư bản lên chủ
+nghĩa xã hội và chủ nghĩa cộng sản.
+2. Phương pháp nghiên cứu
+- Sử dụng phương pháp luận chung nhất:
++ Chủ nghĩa duy vật biện chứng
++ Chủ nghĩa duy vật lịch sử
+- Phương pháp nghiên cứu cụ thể và phương pháp có tính liên ngành, tổng
+hợp:
++ Phương pháp kết hợp lịch sử và logic: Đặc trưng và đặc biệt quan trọng
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Phương pháp khảo sát và phân tích về mặt chính trị - xã hội dựa trên các điều
+kiện kinh tế - xã hội cụ thể: Phương pháp đặc thù
++ Phương pháp so sánh
++ Phương pháp có tính liên ngành: Phân tích, tổng hợp, thống kê, so sánh, điều
+tra xã hội học, sơ đồ hóa, mô hình hóa
+- Gắn bó trực tiếp với phương pháp tổng kết thực tiễn
+3. Ý nghĩa của việc nghiên cứu
+- Về mặt lý luận:
++ Trang bị những nhận thực chính trị - xã hội và phương pháp luận khoa học về
+quá trình tất yếu lịch sử dẫn đến sự hình thành, phát triển hình thái kinh tế - xã
+hội cộng sản chủ nghĩa, giải phóng xã hội, con người…
++ Vũ khí lý luận của giai cấp công nhân hiện đại và đảng
++ Góp phần định hướng chính trị - xã hội cho hoạt động thực tiễn của Đảng
+Cộng sản, Nhà nước XHCN và nhân dân
+- Về mặt thực tiễn:
++ Nhận rõ khoảng cách giữa lý thuyết khoa học, dự báo khoa học với thực tiễn
++ Vấn đề thực tiễn cơ bản và cấp thiết
++ Góp phần quan trọng việc giáo dục niềm tin khoa học cho nhân dân vào mục
+tiêu, lý tưởng xã hội chủ nghãi và con đường đi lên chủ nghĩa xã hội
++ Niềm tin khoa học trở thành động lực tinh thần hướng đến hoạt động thực tiễn
+messages.downloaded_by
+lOMoARcPSD|61972403
+CHƯƠNG II: SỨ MỆNH LỊCH SỬ CỦA GIAI CẤP CÔNG NHÂN
+I. Quan điểm cơ bản của chủ nghĩa Mác – Lênin về giai cấp công nhân và
+sứ mệnh lịch sử thế giới của giai cấp công nhân
+1. Khái niệm và đặc điểm của giai cấp công nhân
+* Khái niệm giai cấp công nhân:
+- Giai cấp công nhân – con đẻ của nền đại công nghiệp tư bản chủ nghĩa,
+giai cấp đại biểu cho lực lương sản xuất tiên tiến, cho phương thức sản xuất hiện
+đại
+- Về phương diện kinh tế - xã hội:
++ Những người lao động trực tiếp hay gián tiếp các công cụ sản xuất có tính chất
+công nghiệp hiện đại và xã hội hóa
++ Sản xuất bằng máy móc, lao động có tính chất xã hội hóa, năng suất lao động
+cao và tạo ra những tiền đề của cải vật chất cho xã hội mới
++ Công nhân công nghiệp công xưởng là bộ phận tiêu biểu cho giai cấp công
+nhân hiện đại
++ Công nhân Anh là đứa con đầu lòng của nền công nghiệp hiện đại
+- Về phương diện chính trị - xã hội:
++ Là sản phẩm xã hội của quá trình phát triển tư bản chủ nghĩa
++ Là những người lao động không có sở hữu tư liệu sản xuất chủ yếu của xã hội
++ Là giai cấp đối khảng với giai cấp tư sản
++ Lao động sống của công nhân là nguồn gốc của giá trị thặng dự và sự giàu có
+của giai cấp tư sản nhờ vào việc bóc lột
+=> Giai cấp công nhân là một tập đoàn xã hội, hình thành và phát triển cùng
+với quá trình phát triển của nền công nghiệp hiện đại; Họ lao động bằng phương
+thức công nghiệp ngày càng hiện đại và gắn liền với quá trình sản xuất vật chất
+hiện đại, là đại biểu cho phương thức sản xuất mang tính xã hội hóa ngày càng
+cao. Họ là người làm thuê do không có tư liệu sản xuất, buộc phải bán sức lao
+động để sống và bị giai cấp tư sản bóc lột giá trị thặng dư; vì vậy lợi ích cơ bản
+của họ đối lập với lợi ích cơ bản của giai cấp tư sản. Đó là giai cấp có sứ mệnh
+phủ định chế độ tư bản chủ nghĩa, xây dựng thành công chủ nghĩa xã hội và chủ
+nghĩa cộng sản trên toàn thế giới
+* Đặc trưng của GCCN:
+- Giai cấp công nhân trên phương diện kinh tế - xã hội:
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Giai cấp công nhân với phương thức lao động công nghiệp trong nền sản xuất
+tư bản chủ nghĩa
++ Giai cấp công nhân trong quan hệ sản xuất tư bản chủ nghĩa
+- Giai cấp công nhân trên phương diện chính trị - xã hội: Giai cấp công nhân
+chịu sự thống trị của giai cấp tư sản
+* Đặc điểm chủ yếu của giai cấp công nhân:
+- Là giai cấp tiên tiến nhất
+- Là giai cấp có tinh thần cách mạng triệt để nhất
+- Là giai cấp có tính tổ chức và kỷ luật cao
+- Mang bản chất quốc tế
+2. Nội dung sứ mệnh lịch sử của giai cấp công nhân
+- Sứ mệnh lịch sử tổng quát của giai cấp công nhân là thông qua chính đảng
+tiền phong, giai cấp công nhân tổ chức, lãnh đạo nhân dân lao động đấu tranh
+xóa bỏ các chế độ người bóc lột người, xóa bỏ chủ nghĩa tư bản, giải phóng giai
+cấp công nhân, nhân dân lao động khỏi mọi sự áp bức, bóc lột, nghèo nàn, lạc
+hậu, xây dựng xã hội cộng sản chủ nghĩa văn minh.
+- Nội dung kinh tế:
++ Là nhân tố hàng đầu của lực lượng sản xuất xã hội hóa cao, là đại biểu cho
+quan hệ sản xuất mới, sản xuất ra của cải vật chất của xã hội
++ Tạo tiền đề vật chất – kỹ thuật cho sự ra đời của xã hội mới
++ Đại biểu cho lợi ích chung của xã hội
++ Giai cấp duy nhất không có lợi ích riêng với nghĩa là tư hữu, phấn đấu cho lợi
+ích chung của xã hội
++ Ở các nước XHCN, GCCN thông qua quá trình công nghiệp hóa và thực hiện
+“một kiểu tổ chức xã hội mới về lao động” để tăng năng suất lao động xã hội và
+thực hiện các nguyên tắc sở hữu, quản lý và phân phối phù hợp
++ Đóng vai trò nòng cốt trong quá trình giải phóng lực lượng sản xuất, thúc đẩy
+lực lượng sản xuất phát triển để tạo cơ sở cho quan hệ sản xuất mới, chủ nghĩa
+xã hội ra đời
+- Nội dung chính trị - xã hội:
++ Lật đổ quyền thống trị của giai cấp tư sản, thiết lập nhà nước kiểu mới
++ Sử dụng nhà nước của mình, do mình làm chủ như một công cụ có hiệu lực để
+cải tạo xã hội cũ và tổ chức xây dựng xã hội mới
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Nội dung văn hóa, tư tưởng:
++ Tập trung xây dựng hệ gái trị mới: lao động, công bằng, dân chủ, bình đẳng và
+tự do
++ Thực hiện cuộc cách mạng về văn hóa, tư tưởng:
+ Cải tạo cái cũ lỗi thời, lạc hậu – Xây dựng cái mới, tiến bộ
+ Xây dựng và củng cố ý thức hệ tiện tiến của giai cấp công nhân: Chủ
+nghĩa Mác – Lenin
+ Đấu tranh khắc phục ý thức hệ tjw sản và các tàn dự còn sót lại của hệ tư
+tưởng cũ
+3. Những điều kiện quy định và thực hiện sứ mệnh lịch sử của giai cấp công
+nhân
+a, Điều kiện khách quan quy định sứ mệnh lịch sử của giai cấp công nhân
+- Do địa vị kinh tế của giai cấp công nhân
++ Chủ thể của quá trình sản xuất vật chất hiện đại, đại diện cho phương thức sản
+xuất tiên tiến
++ Điều kiện khách quan này là nhân tố kinh tế, quy định giai cấp công nhân là
+lực lượng phá vỡ quan hệ sản xuất tư bản chủ nghĩa, giành chính quyền về tay
+mình, chuyển từ giai cấp “tự nó” thành “vì nó”
+- Do địa vị chính trị - xã hội của giai cấp công nhân quy định
++ Có những phẩm chất của một giai cấp tiên tiến
++ Giai cấp cách mạng: tính tổ chức và kỷ luật tự giác và đoàn kết trong cuộc đấu
+tranh tự giải phóng mình và giải phóng xã hội.
+b, Điều kiện chủ quan để giai cấp công nhân thực hiện sứ mệnh lịch sử
+- Sự phát triển của bản thân giai cấp công nhân cả về số lượng và chất lượng
++ Phát triển công nghiệp – “tiền đề thực tiến tuyệt đối cần thiết”
++ Sự trưởng thành của Đảng Cộng sản – hạt nhân chính trị quan trọng của giai
+cấp công nhân
+- Đảng Cộng sản là nhân tố chủ quan quan trọng nhất để giai cấp công nhân thực
+hiện thắng lợi sứ mệnh lịch sử của mình
+- Sự liên minh giai cấp giữa giai cấp công nhân với giai câp nông dân và các
+tầng lớp lao động khác do Đảng Cộng sản lãnh đạo
+II. Giai cấp công nhân và việc thực hiện sứ mệnh lịch sử của giai cấp công
+nhân hiện nay
+messages.downloaded_by
+lOMoARcPSD|61972403
+1. Giai cấp công nhân hiện nay
+- Về những điểm tương đối ổn định so với thế kỷ XIX:
++ Giai cấp công nhân hiện nay vẫn đang là lực lượng sản xuất hàng đầu của xã
+hội hiện đại
++ Công nhân vẫn bị giai cấp tư sản chủ nghĩa bóc lột giá trị thặng dư
++ Phong trào cộng sản và công nhân ở nhiều nước vẫn luôn là lực lượng đi đầu
+trong các cuộc đấu tranh vì hòa bình, hợp tác và phát triển
+ Lý luận về sứ mệnh lịch sử của giai cấp công nhân trong chủ nghĩa Mác 0
+Lenin vẫn mang giá trị khoa học và cách mạng, vẫn có ý nghĩa thực tiễn
+to lớn, chỉ đạo cuộc đấu tranh cách mạng hiện nay của giai cấp công nhân,
+phòng trào công nhân và quần chúng lao động, chống chủ nghĩa tư bản và
+lựa chọn con đường xã hội chủ nghĩa trong sự phát triển của thế giới ngày
+nay
+- Những biến đổi và khác biệt của giai cấp công nhân hiện đại:
++ Xu hướng “trí tuệ hóa” tăng nhanh
++ Xu hướng “trung lưu hóa” gia tăng
++ Là giai cấp giữ vai trò lãnh đạo, Đảng Cộng sản – đội tiên phong của giai cấp
+công nhân, giữ vai trò cầm quyền trong quá trình xây dựng CNXH ở một số
+quốc gia XHCN
+- Trong bối cảnh mới của toàn cầu hóa, hội nhập quốc tế và cách mạng công
+nghiệp thế hệ mới (4.0), công nhân hiện đại cũng tăng nhanh về số lượng, thay
+đổi lớn về cơ cấu trong nền sản xuất hiện đại.
+2. Thực hiện sứ mệnh lịch sử của giai cấp công nhân trên thế giới hiện nay
+a, Về nội dung kinh tế - xã hội
+- Thông qua vai trò của giai cấp công nhân trong quá trình sản xuất với công
+nghệ hiện đại, năng suất, chất lượng cao, đảm bảo cho phát triển bền vững, sứ
+mệnh lịch sử của giai cấp công nhân đối với sự phát triển xã hội ngày càng thể
+hiện rõ
+- Mâu thuẫn lợi ích cơ bản giữa giai cấp công nhân với giai cấp tư sản cùng ngày
+càng sâu sắc ở từng quốc gia và trên phạm vi toàn cầu
+b, Về nội dung chính trị - xã hội
+- Ở các nước tư bản chủ nghĩa, mục tiêu đấu tranh trực tiếp của giai cấp công
+nhân và lao động là chống bất công và bất bình đẳng xã hội
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Mục tiêu lâu dài là giành chính quyền về tay giai cấp công nhân và nhân
+dân lao động, được nêu rõ trong Cương lĩnh chính trị của các Đảng Cộng sản
+trong các nước tư bản chủ nghĩa
+- Đối với các nước xã hội chủ nghĩa, nội dung chính trị - xã hội của sứ mệnh
+lịch sử giai cấp công nhân là lãnh đạo thành công sự nghiệp đổi mới, giải
+quyết thành công các nhiệm vụ trong thời kỳ quá độ lên chủ nghĩa xã hội
+c, Về nội dung văn hóa, tư tưởng
+- Thực hiện sứ mệnh lịch sử của giai cấp công nhân trong điều kiện thế giới
+ngày nay trên lĩnh vực văn hóa, tư tưởng trước hết là cuộc đấu tranh ý thức hệ.
+- Các giá trị như lao động, sáng tạo, công bằng, dân chủ, bình đẳng, tự do vẫn là
+những giá trị được nhân loại thừa nhận và phấn đấu thực hiện
+III. Sứ mệnh lịch sử của giai cấp công nhân Việt Nam
+1. Đặc điểm của giai cấp công nhân Việt Nam
+- Giai cấp công nhân Việt Nam ra đời và phát triển gắn liền với chính sách
+khai thác thuộc địa của thực dân Pháp ở Việt Nam:
++ Ra đời trước giai cấp tư sản vào đầu thế kỷ XX, phát triển chậm vì sinh ra và
+lớn lên ở một nước thuộc địa, nửa phong kiến
++ Trực tiếp đối kháng với tư bản thực dân Pháp
++ Lịch sử đấu tranh cách mạng của giai cấp công nhân và của Đảng cũng như
+phong trào công nhân Việt Nam do Đảng lãnh đạo gắn liền với lịch sử và truyền
+thống đấu tranh của dân tộc
++ Giai cấp công nhân Việt Nam gắn bó mật thiết với các tầng lớp nhân dân trong
+xã hội
+- Biến đổi trong hơn 30 năm đổi mới:
++ Tăng nhanh về số lượng và chất lượng, là giai cấp đi đầu trong sự nghiệp đẩy
+mạnh công nghiệp hóa, hiện đại hóa, gắn với phát triển kinh tế tri thức, bảo vệ
+tài nguyên và môi trường.
++ Đa dạng về cơ cấu nghề nghiệp, có mặt trong mọi thành phần kinh tế nhưng
+đội ngũ công nhân trong khu vực kinh tế nhà nước là tiêu biểu, đóng vai trò
+nòng cốt, chủ đạo.
++ Công nhân tri thức, nắm vững khoa học - công nghệ tiên tiến và công nhân trẻ
+được đào tạo nghề theo chuẩn nghề nghiệp, học vấn, văn hóa, được rèn luyện
+trong thực tiễn sản xuất và thực tiễn xã hội, là lực lượng chủ đạo trong cơ cấu
+giai cấp công nhân, trong lao động và phong trào công đoàn.
+messages.downloaded_by
+lOMoARcPSD|61972403
+2. Nội dung sứ mệnh lịch sử của giai cấp công nhân Việt Nam hiện nay
+- Vai trò giai cấp công nhân và sứ mệnh lịch sử to lớn của giai cấp công nhân ở
+nước ta: là giai cấp lãnh đạo cách mạng thông qua đội tiên phong là Đảng Cộng
+sản Việt Nam.
+- Về kinh tế:
++ Giai cấp công nhân là nguồn nhân lực lao động chủ yếu tham gia phát triển
+nền kinh tế thị trường hiện đại, định hướng xã hội chủ nghĩa
++ Giai cấp công nhân là lực lượng đi đầu trong sự nghiệp đẩy mạnh công nghiệp
+hóa, hiện đại hóa đất nước
++ Phát huy vai trò của giai cấp công nhân, của công nghiệp, thực hiện khối liên
+minh công - nông - trí thức
+- Về chính trị - xã hội:
++ Giữ vững và tăng cường sự lãnh đạo của Đảng, “Giữ vững bản chất giai cấp
+công nhân của Đảng, vai trò tiên phong, gương mẫu của cán bộ đảng viên” và
+“tăng cường xây dựng, chỉnh đốn Đảng, ngăn chặn, đẩy lùi sự suy thoái về tư
+tưởng chính trị, đạo đức, lối sống, “tự diễn biến”, “tự chuyển hóa” trong nội bộ”
++ Cán bộ đảng viên trong giai cấp công nhân phải nêu cao trách nhiệm tiên
+phong, đi đầu, góp phần củng cố và phát triển cơ sở chính trị - xã hội quan trọng
+của Đảng
+- Về văn hóa tư tưởng:
++ Xây dựng và phát triển nền văn hóa Việt Nam tiên tiến, đậm đà bản sắc dân
+tộc
++ Tham gia vào cuộc đấu tranh trên lĩnh vực tư tưởng lý luận để bảo vệ sự trong
+sáng của chủ nghĩa Mác - Lênin và tư tưởng Hồ Chí Minh
+3. Phương hướng về một số giải pháp chủ yếu để xây dựng giai cấp công
+nhân Việt Nam hiện nay
+a, Phương hướng
+- Đại hội lần thứ X xác định phương hướng xây dựng giai cấp công nhân Việt
+Nam:
++ Phát triển về số lượng, chất lượng và tổ chức
++ Nâng cao giác ngộ và bản lĩnh chính trị, trình độ học vấn nghề nghiệp, xứng
+đáng là lực lượng đi đầu trong sự nghiệp công nghiệp hóa, hiện đại hóa đất nước
++ Giải quyết việc làm, giảm tối đa số công nhân thiếu việc làm và thất nghiệp
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Thực hiện tốt chính sách và pháp luật đối với công nhân và lao động
++ Xây dựng tổ chức, phát triển đoàn viên công đoàn, nghiệp đoàn đều khắp ở
+các cơ sở sản xuất kinh doanh thuộc các thành phần kinh tế...
++ Chăm lo đào tạo cán bộ và kết nạp đảng viên từ những công nhân ưu tú
+- Hội nghị lần thứ sáu Ban Chấp hành Trung ương khóa X, nghị quyết về
+“Tiếp tục xây dựng giai cấp công nhân Việt Nam thời kỳ đẩy mạnh công nghiệp
+hóa, hiện đại hóa đất nước”
+- Đại hội đại biểu toàn quốc lần thứ XII khẳng định: “Coi trọng giữ vững bản
+chất giai cấp công nhân và các nguyên tác sinh hoạt của Đảng”
+b, Một số giải pháp chủ yếu
+- Một là, nâng cao nhận thức, kiên định quan điểm giai cấp công nhân là giai
+cấp lãnh đạo cách mạng thông qua đội tiền phong là Đảng Cộng sản Việt Nam
+- Hai là, xây đựng giai cấp công nhân lớn mạnh gắn với xây dựng và phát huy
+sức mạnh của liên minh giai cấp công nhân với giai cấp nông dân và độ ngũ trí
+thức và doanh nhân
+- Ba là, thực hiện chiến lược xây dựng giai cấp công nhân lớn mạnh, gắn kết
+chặt chẽ với chiến lược phát triển kinh tế - xã hội, công nghiệp hóa, hiện đại hóa
+đất nước, hội nhập quốc tế.
+- Bốn là, đào tạo, bồi dưỡng, nâng cao trình độ mọi mặt cho công nhân, không
+ngừng tri thức hóa giai cấp công nhân
+- Năm là, xây dựng giai cấp công nhân lớn mạnh là trách nhiệm của cả hệ thống
+chính trị, của toàn xã hội
+messages.downloaded_by
+lOMoARcPSD|61972403
+CHƯƠNG III: CHỦ NGHĨA XÃ HỘI VÀ THỜI KỲ QUÁ ĐỘ LÊN CHỦ
+NGHĨA XÃ HỘI
+I. Chủ nghĩa xã hội
+- Chủ nghĩa xã hội được hiểu theo 4 nghĩa:
++ Là phong trào thực tiễn, phong trào đấu tranh của nhân dân lao động chống lại
+áp bức, bất công, chống lại các giai cấp thống trị
++ Là trào lưu tư tưởng, lý luận phản ánh lý tưởng giải phóng nhân dân lao động
+khỏi áp bức, bóc lột, bất công
++ Là một khoa học - Chủ nghĩa xã hội khoa học, khoa học về sứ mệnh lịch sử
+của giai cấp công nhân
++ Là một chế độ xã hội tốt đẹp, giai đoạn đầu của hình tháỉ kinh tế- xã hội cộng
+sản chủ nghĩa
+1. Chủ nghĩa xã hội, giai đoạn đầu của hình thái kinh tế - xã hội cộng sản
+chủ nghĩa
+- Học thuyết về hình thái kinh tế - xã hội:
++ Tính tất yếu sự thay thế hình thái kinh tế - xã hội tư bản chủ nghĩa bằng hình
+thái kinh tế - xã hội cộng sản chủ nghĩa
++ Cung cấp những tiêu chuẩn duy vật, khoa học cho sự phân kỳ lịch sử, trong đó
+có sự phân kỳ hình thái kinh tế - xã hội cộng sản chủ nghĩa
+- Khi phân tích hình thái kinh tế - xã hội cộng sản chủ nghĩa
++ Hình thái kinh tế - xã hội cộng sản chủ nghĩa phát triển từ thấp lên cao qua hai
+giai đoạn, giai đoạn thấp và giai đoạn cao
++ Giữa xã hội tư bản chủ nghĩa và xã hội cộng sản chủ nghĩa là thời kỳ quá độ
+lên chủ nghĩa cộng sản
+- Về xã hội của thời kỳ quá độ, C.Mác cho rằng đó là xã hội vừa thoát thai từ
+xã hội tư bản chủ nghĩa, xã hội chưa phát triển trên cơ sở của chính nó còn mang
+nhiều dấu vết của xã hội cũ để lại
+- Từ thực tiễn nước Nga, đối với những nước chưa có chủ nghĩa tư bản phát
+triển cao “cần phải có thời kỳ quá độ khá lâu dài từ chủ nghĩa tư bản lên chủ
+nghĩa xã hội”
+- Thời kỳ quá độ từ chủ nghĩa tự bản lên chủ nghĩa cộng sản:
++ Đối với các nước chưa trải qua chủ nghĩa tư bản phát triển, cần thiết phải
+có thời kỳ quá độ khá lâu dài từ CNTB lên CNXH – những cơn đau kéo dài
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Đối với những nước đã trải qua chủ nghĩa tư bản phát triển, giữa chủ
+nghĩa tư bản và chủ nghĩa cộng sản có một thời kỳ quá độ nhất định, thời kỳ cải
+biến cách mạng từ xã hội này sang xã hội kia, thời kỳ quá độ từ chủ nghĩa tư bản
+lên chủ nghĩa cộng sản
+2. Điều kiện ra đời chủ nghĩa xã hội
+- Các nhà sáng lập chủ nghĩa xã hội khoa học đã thừa nhận vai trò to lớn của chủ
+nghĩa tư bản
+- Sự phát triển về lực lượng sản xuất và sự trưởng thành của giai cấp công nhân
+là tiền đề kinh tế- xã hội dẫn tới sự sụp đổ không tránh khỏi của chủ nghĩa tư
+bản
+- Hình thái kinh tế - xã hội cộng sản chủ nghĩa không tự nhiên ra đời, trái lại, nó
+chỉ được hình thành thông qua cách mạng vô sản dưới sự lãnh đạo của đảng của
+giai cấp công
+- Cách mạng vô sản là cuộc cách mạng của giai cấp công nhân và nhân dân lao
+động dưới sự lãnh đạo của Đảng Cộng sản, trên thực tế được thực hiện bằng con
+đường bạo lực cách mạng
+3. Những đặc trưng cơ bản của chủ nghĩa xã hội
+- Chủ nghĩa xã hội giải phóng giai cấp, giải phóng dân tộc, giải phóng xã hội,
+giải phóng con người, tạo điều kiện để con người phát triển toàn diện
+- Chủ nghĩa xã hội là xã hội do nhân dân lao động làm chủ  Thể hiện thuộc
+tính bản chất của chủ nghĩa xã hội
+- Chủ nghĩa xã hội có nền kinh tế phát triển cao dựa trên lực lượng sản xuất hiện
+đại và chế độ công hữu về tư liệu sản xuất chủ yếu  Phương diện kinh tế của
+CNXH
+- Chủ nghĩa xã hội có nhà nước kiểu mới mang bản chất giai cấp công nhân,
+đại biểu cho lợi ích, quyền lực và ý chí của nhân dân lao động.
+- Chủ nghĩa xã hội có nền văn hóa phải triển cao, kế thừa và phát huy những giá
+trị của văn hóa dân tộc và tinh hoa văn nhân loại.
+- Chủ nghĩa xã hội bảo đảm bình đẳng, đoàn kết giữa các dân tộc và cóquan hệ
+hữu nghị; hợp tác với nhân dân các nước trên thế giới
+II. Thời kỳ quá độ lên chủ nghĩa xã hội
+- Từ chủ nghĩa tư bản lên chủ nghĩa xã hội tất yếu phải trải qua thời kỳ quá độ
+chính trị.
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Quá độ trực tiếp từ chủ nghĩa tư bản lên chủ nghĩa cộng sản đối với những
+nước đã trải qua chủ nghĩa tư bản phát triển: Chưa từng diễn ra
+- Quá độ gián tiếp từ chủ nghĩa tư bản lên chủ nghĩa cộng sản đối với những
+nước chưa trải qua chủ nghĩa tư bản phát triển: Liên Xô và các nước Đông Âu
+trước đây, Trung Quốc, Việt Nam
+- Trong bối cảnh toàn cầu hóa và cách mạng công nghiệp 4.0, các nước lạc hậu,
+sau khi giành được chính quyền, dưới sự lãnh đạo của Đảng Cộng sản có thể
+tiến thẳng lên chủ nghĩa xã hội chủ nghĩa bỏ qua chế độ tư bản chủ nghĩa.
+2. Đặc điểm thời kỳ quá độ lên chủ nghĩa xã hội
+- Thời kỳ quá độ lên chủ nghĩa xã hội là thời kỳ cải tạo cách mạng sâu sắc, triệt
+để xã hội tư bản chủ nghĩa trên tất cả các lĩnh vực, kinh tế, chính trị, văn hóa, xã
+hội, xây dựng từng bước cơ sở vật chất – kỹ thuật và đời sống tinh thần của chủ
+nghĩa xã hội. Đó là thời kỳ lâu dài, gian khổ bắt đầu từ khi giai cấp công nhân và
+nhân dân lao động giành được chính quyền đến khi xây dựng thành công chủ
+nghĩa xã hội.
+- Trên lĩnh vực kinh tế:
++ Tất yếu tồn tại nền kinh tế nhiều thành phần, trong đó có thành phần đối lập
++ 5 thành phần kinh tế: Kinh tế gia trưởng, kinh tế hàng hóa nhỏ; kinh tế tư
+bản; kinh tế tư bản nhà nước; kinh tế xã hội chủ nghĩa
+- Trên lĩnh vực chính trị:
++ Thiết lập, tăng cường chuyên chính vô sản mà thực chất của nó là việc giai cấp
+công nhân nắm và sử dụng quyền lực nhà nước trấn áp giai cấp tư sản, tiến hành
+xây dựng một xã hội không giai cấp
++ Cuộc đấu tranh diễn ra trong điều kiện mới- giai cấp công nhân đã trở thành
+giai cấp cầm quyền, với nội dung mới- xây dựng toàn diện xã hội mới, trọng
+tâm là xây dựng nhà nước có tính kinh tế, và hình thức mới- cơ bản là hòa bình
+tổ chức xây dựng.
+- Trên lĩnh vực tư tưởng – văn hóa:
++ Từng bước xây dựng văn hóa vô sản, nền văn hoá mới xã hội chủ nghĩa
++ Tiếp thu giá trị văn hóa dân tộc và tinh hoa văn hóa nhân loại
++ Bảo đảm đáp ứng nhu cầu văn hóa - tinh thần ngày càng tăng của nhân dân
+- Trên lĩnh vực xã hội:
++ Tồn tại nhiều giai cấp, tầng lớp và sự khác biệt giữa các giai cấp tầng lớp xã
+hội, các giai cấp, tầng lớp vừa hợp tác, vừa đấu tranh với nhau
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Thời kỳ đấu tranh giai cấp chống áp bức, bất công, xóa bỏ tệ nạn xã hội và
+những tàn dư của xã hội cũ để lại, thiết lập công bằng xã hội trên cơ sở thực hiện
+nguyên tắc phân phối theo lao động là chủ đạo
+III. Quá độ lên chủ nghĩa xã hội ở Việt Nam
+1. Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa
+- Đặc trưng của Việt Nam tiến lên CNXH:
++ Xuất phát từ một xã hội vốn là thuộc địa, nửa phong kiến
++ Cuộc cách mạng khoa học và công nghệ hiện đại đang diễn ra mạnh mẽ
++ Thời đại ngày nay vẫn là thời đại quá độ từ chủ nghĩa tư bản lên chủ nghĩa xã
+hội
+- Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa là sự lựa chọn
+duy nhất đúng, khoa học, phản ánh đúng qui luật phát triển khách quan
+của cách mạng Việt Nam trong thời đại ngày nay
++ Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa, tức là bỏ qua
+việc xác lập vị trí thống trị của quan hệ sản xuất và kiến trúc thượng tầng tư bản
+chủ nghĩa
++ Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa là con đường
+cách mạng tất yếu khách quan
++ Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa, tức là bỏ qua
+việc xác lập vị trí thống trị của quan hệ sản xuất và kiến trúc thượng tầng tư bản
+chủ nghĩa
++ Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa đòi hòi phải tiếp
+thu, kế thừa những thành tựu mà nhân loại đã đạt được dưới chủ nghĩa tư bản
++ Quá độ lên chủ nghĩa xã hội bỏ qua chế độ tư bản chủ nghĩa là tạo ra sự biến
+đổi về chất của xã hội trên tất cả các lĩnh vực, là sự nghiệp rất khó khăn, phức
+tạp, lâu dài với nhiều chặng đường, nhiều hình thức tổ chức kinh tế, xã hội
+2. Những đặc trưng của chủ nghĩa xã hội và phương hướng xây dựng chủ
+nghĩa xã hội ở Việt Nam hiện nay
+a, Những đặc trưng bản chất của chủ nghĩa xã hội Việt Nam
+- Đại hội IV (1976): Nhận thức của Đảng ta mới dừng ở mức độ định hướng
+- Đại hội VII: Nhận thức sáng tỏ hơn, đạt tới trình độ định hình, định lượng –
+Cương lĩnh xây dựng đất nước trong thời kỳ quá độ lên CNXH (1991)
+- Đại hội XI: Cương lĩnh xây dựng đất nước trong thời kỳ quá độ lên chủ nghĩa
+xã hội (bổ sung, phát triển năm 2011) – 8 đặc trưng:
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Dân giàu, nước mạnh dân chủ, công bằng, văn minh
++ Do nhân dân lao động làm chủ
++ Có nền kinh tế phát triển cao dựa trên lực lượng sản xuất hiện đại và quan hệ
+sản xuất tiến bộ phù hợp
++ Có nền văn hóa tiên tiến, đậm đà bản sắc dân tộc
++ Con người có cuộc sống ấm no, tự do, hạnh phúc, có điều kiện phát triển toàn
+diện
++ Các dân tộc trong cộng đồng Việt Nam bình đẳng, đoàn kết, tôn trọng và giúp
+đỡ nhau cùng phát triển
++ Có Nhà nước pháp quyền xã hội chủ nghĩa của nhân dân, do nhân dân, vì nhân
+dân do Đảng Cộng sản lãnh đạo
++ Có quan hệ hữu nghị, hợp tác với các nước trên thế giới
+b, Phương hướng xây dựng chủ nghĩa xã hội ở Việt Nam hiện nay
+- Cương lĩnh xây dựng đất nước trong thời quá độ lên chủ nghĩa xã hội (1991)
+xác đinh 7 phương hướng
+- Đại hội XI, trong Cương lĩnh xây dựng đất nước trong thời quá độ lên chủ
+nghĩa xã hội (Bổ sung và phát triển năm 2011) xác định 8 phương hướng
++ Đẩy mạnh công nghiệp hóa, hiện đại hóa đất nước gắn với phát triển kinh tế tri
+thức, bảo vệ tài nguyên, môi trường
++ Phát triển nền kinh tế thị trường định hướng xã hội chủ nghĩa
++ Xây dựng nền văn hoá tiên tiến, dậm đà bản sắc dân tộc; xây dựng con người,
+nâng cao đời sống nhân dân, thực hiện tiến bộ về công bằng xã hội
++ Bảo đảm vững chắc quốc phòng và an ninh quốc gia, trật tự, an toàn xã hội
++ Thực hiện đường lối đối ngoại độc lập, tự chủ, hòa bình, hữu nghị, hợp tác và
+phát triển; chủ động và tích cực hội nhập quốc tế
++ Xây dựng nền dân chủ xã hội chủ nghĩa, thực hiện đại đoàn kết toàn dân tộc,
+tăng cường và mở rộng mặt trận dân tộc thống nhất
++ Xây dựng Nhà nước pháp quyền xã hội chủ nghĩa của nhân dân, do nhân dân,
+vì nhân dân
++ Xây dựng Đảng trong sạch, vững mạnh
+- 12 nhiệm vụ
+- Đại hội XII xác định 9 mối quan hệ lớn
+messages.downloaded_by
+lOMoARcPSD|61972403
+CHƯƠNG IV: DÂN CHỦ XÃ HỘI CHỦ NGHĨA VÀ NHÀ NƯỚC XÃ
+HỘI CHỦ NGHĨA
+I. Dân chủ và dân chủ xã hội chủ nghĩa
+1. Dân chủ và sự ra đời, phát triển của dân chủ
+a, Quan niệm về dân chủ
+- Thuật ngữ dân chủ ra đời vào khoảng thế kỷ thứ VII – VI trước công nguyên
+- Các nhà tư tưởng Lạp cổ đại đã dùng cụm từ “demokratos” để nói đến dân chủ
+- Dân chủ được hiểu là nhân dân cai trị và sau này được các nhà chính trị gọi
+giản lược là quyền lực của nhân dân hay quyền lực thuộc về nhân dân
+- Điểm khác biệt cơ bản giữa cách hiểu về dân chủ thời cổ đại và hiện nay là ở
+tính chất trực tiếp của mối quan hệ sở hữu quyền lực công cộng và cách hiểu về
+nội hàm của khái niệm nhân dân
+- Nội dung cơ bản của dân chủ:
++ Thứ nhất, về phương diện quyền lực, dân chủ là quyền lực thuộc nhân dân
++ Thứ hai, trên phương diện chế độ xã hội và trong lĩnh vực chính trị, dân chủ là
+một hình thức hay hình thái nhà nước
++ Thứ ba, trên phương diện tổ chức và quản lý xã hội, dân chủ là một nguyên tắc
+– nguyên tắc dân chủ
+- Quan điểm về dân chủ của chủ tịch Hồ Chí Minh:
++ Dân chủ trước hết là một giá trị nhân loại chung. Dân chủ là dân là chủ và dân
+làm chủ.
++ Khi coi dân là cơ thể chế chính trị, một chế độ xã hội, Người khẳng định:
+“Chế độ ta là chế độ dân chủ, tức là nhân dân là người chủ, mà Chính phủ là
+người đầy tớ trung thành của nhân dân”
++ Dân chủ có nghĩa là mọi quyền lực đều thuộc về nhân dân
+ Dân chủ là một giá trị xã hội phản ánh những quyền cơ bản của con
+người; là một phạm trù chính trị gắn với các hình thức tổ chức nhà nước
+của giai cấp cầm quyền; là một phạm trù lịch sử gắn với quá trình ra đời,
+phát triển của lịch sử xã hội nhân loại
+b, Sự ra đời, phát triển của dân chủ
+- Trong chế độ cộng sản nguyên thủy đã xuất hiện hình thức manh nha của dân
+chủ mà Ph.Ăngghen gọi là “dân chủ nguyên thủy” hay còn gọi là “dân chủ quân
+sự”
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Nền dân chủ chủ nô ra đời khi trình độ của lực lượng sản xuất phát triển dẫn
+tới sự ra đời của chế độ tư hữu về sau đó là giai cấp đã làm cho hình thức “dân
+chủ nguyên thủy” tan rã
+- Với sự thống trị của nhà nước chuyên chế phong kiến, chế độ dân chủ chủ nô
+đã bị xóa bỏ và thay vào đó là chế độ độc tài chuyên chế phong kiến
+- Dân chủ tư sản ra đời là một bước tiến lớn của nhân loại với những giá trị nổi
+bật về quyền tự do, bình đẳng, dân chủ
+- Dân chủ XHCN ra đời khi cách mạng xã hội chủ nghĩa Tháng Mười Nga thắng
+lợi (1917), một thời đại mới mở ra
+- Trong lịch sử nhân loại, cho đến nay có ba nền (chế độ) dân chủ:
++ Nền dân chủ chủ nô gắng với chế độ chiếm hữu nô lệ
++ Nền dân chủ tư sản gắng với chế độ tư bản chủ nghĩa
++ Nền dân chủ xã hội chủ nghĩa, gắn với chế độ xã hội chủ nghĩa
+2. Dân chủ xã hội chủ nghĩa
+a, Quá trình ra đời của nền dân chủ xã hội chủ nghĩa
+- Dân chủ xã hội chủ nghĩa đã được phôi thai từ thực tiễn đấu tranh giai cấp ở
+Pháp và Công xã Pari năm 1871
+- Cách mạng Tháng Mười Nga thành công với sự ra đời của nhà nước xã hội
+chủ nghĩa đầu tiên trên thế giới (1917), nền dân chủ xã hội chủ nghĩa mới chính
+thức được xác lập
+- Nguyên tắc cơ bản của nền dân chủ xã hội chủ nghĩa là không ngừng mở rộng
+dân chủ
+b, Bản chất của nền dân chủ xã hội chủ nghĩa
+- Bản chất chính trị:
++ Bản chất chính trị của nền dân chủ xã hội chủ nghĩa là sự lãnh đạo chính trị
+của giai cấp công nhân thông qua đảng của nó đối với toàn xã hội là để thực
+hiện quyền lực và lợi ích của toàn thể nhân dân, trong đó có giai cấp công nhân
++ Chế độ dân chủ xã hội chủ nghĩa, nhà nước xã hội chủ nghĩa do đó về thực
+chất là của nhân dân, do nhân dân và vì nhân dân
++ Dân chủ xã hội chủ nghĩa vừa có bản chất giai cấp công nhân, vừa có tính
+nhân dân rộng rãi, tính dân tộc sâu sắc
+- Bản chất kinh tế:
+messages.downloaded_by
+lOMoARcPSD|61972403
++ Nền dân chủ xã hội chủ nghĩa dựa trên chế độ sở hữu xã hội về những tư liệu
+sản xuất chủ yếu của toàn xã hội
++ Bản chất kinh tế đó chỉ được bộc lộ ở quyền làm chủ của nhân dân về các tư
+liệu sản xuất chủ yếu; quyền làm chủ trong quá trình sản xuất kinh doanh, quản
+lý và phân phối
++ Bản chất kinh tế của nền dân chủ xã hội chủ nghĩa được thể hiện ở chỗ thực
+hiện chế độ công hữu về tư liệu sản xuất chủ yếu và thực hiện chế độ phân phối
+lợi ích theo kết quả lao động (chủ yếu)
+- Bản chất tư tưởng – văn hóa – xã hội:
++ Nền dân chủ xã hội chủ nghĩa lấy hệ tư tưởng Mác - Lênin - hệ tư tưởng của
+giai cấp công nhân, làm chủ đạo
++ Trong nền dân chủ xã bội chủ nghĩa có sự kết hợp hài hòa về lợi ích giữa cá
+nhân, tập thể và lợi ích của toàn xã hội
+II. Nhà nước xã hội chủ nghĩa
+1. Sự ra đời, bản chất, chức năng của nhà nước xã hội chủ nghĩa
+a, Sự ra đời của nhà nước xã hội chủ nghĩa
+- Kết quả của cuộc cách mạng do giai cấp vô sản và nhân dân lao động tiến hành
+dưới sự lãnh đạo của Đảng Cộng sản
+- Nhà nước xã hội chủ nghĩa là nhà nước mà ở đó, sự thống trị chính trị thuộc về
+giai cấp công nhân, do cách mạng xã hội chủ nghĩa sản sinh ra và có sứ mệnh
+xây đựng thành công chủ nghĩa xã hội, đưa nhân dân lao động lên địa vị làm chủ
+trên tất cả các mặt của đời sống xã hội trong một xã hội phát triển cao - xã hội
+xã hội chủ nghĩa
+b, Bản chất của nhà nước xã hội chủ nghĩa
+- Về chính trị, nhà nước xã hội chủ nghĩa mang bản chất của giai cấp công nhân,
+- Về kinh tế, bản chất của nhà nước xã hội chủ nghĩa chịu sự quy định của cơ sở
+kinh tế của xã hội xã hội chủ nghĩa, đó là chế độ sở hữu xã hội về tư liệu sản
+xuất chủ yếu
+- Về văn hóa - xã hội, nhà nước xã hội chủ nghĩa được xây dựng trên nền tảng
+tinh thần là lý luận của chủ nghĩa Mác - Lênin và những giá trị văn hóa tiên tiến,
+tiến bộ của nhân loại
+c, Chức năng của nhà nước xã hội chủ nghĩa
+- Căn cứ vào phạm vi tác động của quyền lực nhà nước: Đối nội & Đối ngoại
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Căn cứ vào lĩnh vực tác động của quyền lực nhà nước: Chính trị, kinh tế, văn
+hóa, xã hội
+- Căn cứ vào tính chất của quyền lực nhà nước: Giai cấp (Trấn áp) và Xã hội (Tổ
+chức và xây dựng)
+- Đối với các nhà nước bóc lột, việc thực hiện chức năng trấn áp đóng vai trò
+quyết định trong việc duy trì địa vị của giai cấp nắm quyền chiếm hữu tư liệu
+sản xuất chủ yếu của xã hội
+- Trong nhà nước xã hội xã hội chủ nghĩa, vấn đề quản lý và xây dựng kinh tế là
+then chốt, quyết định
+2. Mối quan hệ giữa dân chủ xã hội chủ nghĩa và nhà nước xã hội chủ nghĩa
+- Dân chủ xã hội chủ nghĩa là cơ sở nền tảng cho việc xây dựng và hoạt động
+của nhà nước xã hội chủ nghĩa
+- Ra đời trên cơ sở nền dân chủ xã hội chủ nghĩa, nhà nước xã hội chủ nghĩa trở
+thành công cụ quan trọng cho việc thực thi quyền làm chủ của người dân
+III. Dân chủ xã hội chủ nghĩa và nhà nước pháp quyền xã hội chủ nghĩa ở
+Việt Nam
+1. Dân chủ xã hội chủ nghĩa ở Việt Nam
+a, Sự ra đời, phát triển của nền dân chủ xã hội chủ nghĩa ở Việt Nam
+- Chế độ dân chủ nhân dân ở nước ta được xác lập sau Cách mạng Tháng Tám
+năm 1945.
+- Đến năm 1976, tên nước được đổi thành Cộng hòa xã hội chủ nghĩa Việt Nam
+- Đại hội VI của Đảng (năm 1986) đã đề ra đường lối đổi mới toàn diện đất nước
+đã nhấn mạnh phát huy dân chủ
+- Đảng ta khẳng định một trong những đặc trưng của chủ nghĩa xã hội Việt Nam
+là do nhân dân làm chủ
+- Dân chủ đã được đưa vào mục tiêu tổng quát của cách mạng Việt Nam: Dân
+giàu, nước mạnh, dân chủ, công bằng, văn minh
+b, Bản chất của nền dân chủ xã hội chủ nghĩa ở Việt Nam
+- Bản chất dân chủ xã hội chủ nghĩa là dựa vào Nhà nước xã hội chủ nghĩa và sự
+ủng hộ, giúp đỡ của nhân dân.
+- Dân chủ gắn liền với kỷ cương và phải thể chế hóa bằng pháp luật, được pháp
+luật bảo đảm:
+ Dân chủ là mục tiêu của chế độ xã hội chủ nghĩa
+messages.downloaded_by
+lOMoARcPSD|61972403
+ Dân chủ là bản chất của chế độ xã hội chủ nghĩa
+ Dân chủ là động lực để xây dựng chủ nghĩa xã hội
+ Dân chủ gắn với pháp luật
+ Dân chủ phải được thực hiện trong đời sống thực tiễn
+- Bản chất dân chủ xã hội chủ nghĩa ở Việt Nam được thực hiện thông qua các
+hình thức dân chủ gián tiếp và dân chủ trực tiếp.
++ Gián tiếp: Đại diện, ủy quyền
++ Trực tiếp: Hành động trực tiếp
+2. Nhà nước pháp quyền xã hội chủ nghĩa ở Việt Nam
+a, Quan niệm về nhà nước pháp quyền XHCN ở Việt Nam
+Nhà nước pháp quyền được hiểu là nhà nước mà ở đó, tất cả mọi công dân đều
+được giáo dục pháp luật và phải hiểu biết pháp luật, tuân thủ pháp luật, pháp luật
+phải đảm bảo tính nghiêm minh; trong hoạt động của các cơ quan nhà nước,
+phải có sự kiểm soát lẫn nhau, tất cả vì mục tiêu phục vụ nhân dân
+b, Đặc điểm của nhà nước pháp quyền XHCN ở Việt Nam
+- Thứ nhất, nhà nước do nhân dân lao động làm chủ, đó là Nhà nước của dân, do
+dân, vì dân.
+- Thứ hai, Nhà nước được tổ chức và hoạt động dựa trên cơ sở Hiến pháp và
+pháp luật. Trong tất cả các hoạt động của xã hội, pháp luật được đặt ở vị trí tối
+thượng để điều chỉnh các quan hệ xã hội.
+- Thứ ba, quyền lực nhà nước là thống nhất, có sự phân công rõ ràng, có cơ chế
+phối hợp và kiểm soát giữa các cơ quan: lập pháp, hành pháp và tư pháp.
+- Thứ tư, Nhà nước pháp quyền xã hội chủ nghĩa ở Việt Nam phải do Đảng
+Cộng sản Việt Nam lãnh đạo, được giám sát bởi nhân đân với phương châm:
+“Dân biết, dân bàn, dân làm, dân kiểm tra” thông qua các tổ chức, các cá nhân
+được nhân dân ủy nhiệm.
+- Thứ năm, Nhà nước pháp quyền xã hội chủ nghĩa ở Việt Nam tôn trọng quyền
+con người, coi con người là chủ thể, là trung tâm của sự phát triển. Quyền dân
+chủ của nhân dân được thực hành một cách rộng rãi; “nhân dân có quyền bầu và
+bãi miễn những đại biểu không xứng đáng”; đồng thời tăng cường thực hiện sự
+nghiêm minh của pháp luật.
+- Thứ sáu, tổ chức và hoạt động của bộ máy nhà nước theo nguyên tắc tập trung
+dân chủ, có sự phân công, phân cấp, phối hợp và kiểm soát lẫn nhau, nhưng bảo
+đảm quyền lực là thống nhất và sự chỉ đạo thống nhất của Trung ương
+messages.downloaded_by
+lOMoARcPSD|61972403
+3. Phát huy dân chủ xã hội chủ nghĩa, xây dựng Nhà nước pháp quyền xã
+hội chủ nghĩa ở Việt Nam hiện nay
+a, Phát huy dân chủ xã hội chủ nghĩa ở Việt Nam hiện nay
+- Một là, xây dựng, hoàn thiện thể chế kinh tế thị trường định hướng xã hội chủ
+nghĩa tạo ra cơ sở kinh tế vững chắc cho xây dựng dân chủ xã hội chủ nghĩa
+- Hai là, xây dựng Đảng Cộng sản Việt Nam trong sạch, vững mạnh với tư cách
+điều kiện tiên quyết để xây dựng nền dân chủ xã hội chủ nghĩa Việt Nam.
+- Ba là, xây dựng Nhà nước pháp quyền xã hội chủ nghĩa vững mạnh với tư cách
+điều kiện để thực thi dân chủ xã hội chủ nghĩa.
+- Bốn là, nâng cao vai trò của các tổ chức chinh trị - xã hội trong xây dựng nền
+dân chủ xã hội chủ nghĩa.
+- Năm là, xây dựng và từng bước hoàn thiện các hệ thống giám sát, phản biện xã
+hội được phát huy quyền làm chủ của nhân dân
+b, Tiếp tục xây dựng và hoàn thiện Nhà nước pháp quyền xã hội chủ nghĩa
+- Một là, xây dựng Nhà nước pháp quyền xã hội chủ nghĩa dưới sự lãnh đạo của
+Đảng.
+- Hai là, cải cách thể chế và phương thức hoạt động của Nhà nước
+- Ba là xây dựng đội ngũ cán bộ, công chức trong sạch, có năng lực.
+- Bốn là, đấu tranh phòng, chống tham nhũng, lãng phí, thực hành tiết kiệm
+messages.downloaded_by
+lOMoARcPSD|61972403
+CHƯƠNG V: CƠ CẤU XÃ HỘI – LIÊN MINH GIAI CẤP, TẦNG LỚP
+TRONG THỜI KỲ QUÁ ĐỘ LÊN CHỦ NGHĨA XÃ HỘI
+I. Cơ cấu xã hội – Giai cấp trong thời kỳ quá đọ lên CNXH
+1. Khái niệm và vị trí của cơ cấu xã hội – giai cấp trong cơ cấu xã hội
+a, Khái niệm cơ cấu xã hội và cơ cấu xã hội – giai cấp
+- Cơ cấu xã hội là những cộng đồng người cùng toàn bộ những mối quan hệ xã
+hội do sự tác động lẫn nhau của cộng động ấy tạo nên
+- Cơ cấu xã hội có nhiều loại
+ Cơ cấu xã hội – dân cư
+ Cơ cấu xã hội – nghề nghiệp
+ Cơ cấu xã hội – dân tộc
+ Cơ cấu xã hội – tôn giáo
+ Cơ cấu xã hội – giai cấp
+- Cơ cấu xã hội - giai cấp là hệ thống các giai cấp, tầng lớp xã hội tồn tại khách
+quan trong một chế độ xã hội nhất định, thông qua những mối quan hệ về sở hữu
+tư liệu sản xuất, về tổ chức quản lý quá trình sản xuất, về địa vị chính trị - xã
+hội... giữa các giai cấp và tầng lớp đó
+- Giai cấp công nhân, giai cấp nông dân, tầng lớp trí thức, tầng lớp doanh nhân,
+tầng lớp tiểu chủ, tầng lớp thanh niên, phụ nữ  Tạo sức mạnh tổng hợp để
+thực hiện những mục tiêu, nội dung, nhiệm vụ của thời kỳ quá độ lên CNXH
+b, Vị trí của cơ cấu xã hội – giai cấp trong cơ cấu xã hội
+- Cơ cấu xã hội - giai cấp có vị trí quan trọng hàng đầu:
++ Cơ cấu xã hội - giai cấp liên quan đến các đảng phái chính trị và nhà nước;
+đến quyền sở hữu tư liệu sản xuất, quản lý tổ chức lao động, vấn đề phân phối
+thu nhập... trong một hệ thống sản xuất nhất định
++ Sự biến đổi của cơ cấu xã hội - giai cấp tất yếu sẽ ảnh hưởng đến sự biến đổi
+của các cơ cấu xã hội khác và tác động đến sự biến đổi của toàn bộ cơ cấu xã
+hội
++ Cơ cấu xã hội - giai cấp là căn cứ cơ bản để từ đó xây dựng chính sách phát
+triển kinh tế, văn hóa, xã hội của mỗi xã hội trong từng giai đoạn lịch sử cụ
+thể.
+- Vị trí quan trọng nhưng không tuyệt đối hóa
+2. Sự biến đổi có tính quy luật của cơ cấu xã hội – giai cấp trong thời kỳ quá
+độ lên CNXH
+messages.downloaded_by
+lOMoARcPSD|61972403
+- Một là, cơ cấu xã hội - giai cấp biến đổi gắn liền và bị quy định bởi cơ cấu
+kinh tế của thời kỳ quá độ lên chủ nghĩa xã hội.
+- Hai là, cơ cấu xã hội - giai cấp biến đổi phức tạp, đa dạng, làm xuất hiện các
+tầng lớp xã hội mới.
++ Giai cấp công nhân, giai cấp nông dân, tầng lớp trí thức, giai cấp tư sản
++ Tầng lớp doanh nhân, tiểu chủ, tầng lớp những người giàu có và trung lưu
+trong xã hội
+- Ba là, cơ cấu xã hội - giai cấp biến đổi trong mối quan hệ vừa đấu tranh,
+vừa liên minh, từng bước xóa bỏ bất bình đẳng xã hội dẫn đến sự xích lại gần
+nhau
+II. Liên minh giai cấp, tầng lớp trong thời kỳ quá độ lên CNXH
+- Nhiều cuộc đấu tranh của giai cấp công nhân thất bại chủ yếu là do giai cấp
+công nhân “đơn độc” vì đã không tổ chức liên minh với”người bạn đồng minh
+tự nhiên”của mình là giai cấp nông dân
+- Trong cách mạng xã hội chủ nghĩa, dưới sự lãnh đạo của Đảng Cộng sản, giai
+cấp công nhân phải liên minh với giai cấp nông dân và các tầng lớp nhân dân lao
+động để tạo sức mạnh tổng hợp đảm bảo cho thắng lợi của cuộc cách mạng xã
+hội chủ nghĩa cả trong giai đoạn giành chính quyền và giai đoạn xây dựng chế
+độ xã hội mới.
+- Liên minh công, nông là vấn đề mang tính nguyên tắc để đảm bảo cho thắng
+lợi của cuộc cách mạng xã hội chủ nghĩa. Nếu không liên minh với nông dân thì
+không thể có được chính quyền của giai cấp vô sản – Lênin
+5 phương hướng xây dựng cơ cấu xã hội – giai cấp Việt Nam
+
+
+
+
 + ĐỚI VỚI C. MÁC " GÓP PHẦN PHÊ PHÁN " 
 +NGUỒN GÓC CỦA TÔN GIÁO KHÔNG PHẢI TỪ VĂN HÓA XÃ HỘI ( ĐÓ CHỈ LÀ MÔI TRƯỜNG ĐỂ PHÁT TRIỂN )
 +HỆ GIÁ TRỊ CỦA CÔNG NHÂN TRONG VĂN HÓA TƯ TƯỞNG LÀ: Lao động; công bằng, dân chủ, bình đẳng và tự do
